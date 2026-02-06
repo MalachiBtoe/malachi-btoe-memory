@@ -1,0 +1,1 @@
+# Biblical Foundations (Key Passages, Exegesis)\n\n**Core**: Scripture grounds love-law (1 John 4:8, Col 1:17) (TBD).\n*2026-02-06 Malachi*

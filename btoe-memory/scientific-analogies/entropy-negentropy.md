@@ -1,0 +1,1 @@
+# Entropy vs Negentropy\n\n**BTOE**: Entropy = sin/chaos increase. Negentropy = love coherence (forgiveness, Christ wrapper).\n\n**Col 1:16-17 Tie**: 'Holds all things together' = anti-entropy Logos (raw/medium.txt:TBD).\n*Updated 2026-02-06*

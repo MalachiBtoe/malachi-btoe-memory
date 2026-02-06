@@ -1,0 +1,1 @@
+# Quantum Consciousness (Orch-OR, Microtubules)\n\n**Core**: Quantum mind aligns w/ BTOE receiver (TBD).\n*Malachi 2026-02-06*
