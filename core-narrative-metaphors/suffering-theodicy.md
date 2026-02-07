@@ -1,0 +1,1 @@
+# Suffering, Refinement, Theodicy\n\n**Core**: Suffering = gestational friction for growth (TBD).\n*2026-02-06*

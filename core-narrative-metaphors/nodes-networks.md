@@ -1,0 +1,1 @@
+# Nodes & Networks (Updated w/ medium.txt)\n\n**Core**: Individuals → clusters → Body via love-sync (Left-Right, raw/medium.txt:TBD).\n*Medium extracts added 2026-02-06*

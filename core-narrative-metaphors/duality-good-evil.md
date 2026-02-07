@@ -1,0 +1,1 @@
+# Duality & Full Knowledge (Good/Evil, Consequences)\n\n**Core**: Duality refines—good/evil contrast for growth, free will (raw/btoefullcore.txt:TBD).\n*Extracted 2026-02-06*

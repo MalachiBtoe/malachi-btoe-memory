@@ -1,0 +1,1 @@
+# Time as Teacher / Gestation\n\n**Core**: Time = womb gestation for love-learning (TBD).\n*Extracted 2026-02-06*

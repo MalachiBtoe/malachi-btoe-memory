@@ -1,0 +1,1 @@
+# Forgiveness, Grace, Entropy Reduction\n\n**Core**: Grace defeats entropy via forgiveness (TBD).\n*Extracted*
